@@ -1,2 +1,2 @@
 # adoptame
-adoptaun perrito
+adopta un perrito
